@@ -1,2 +1,2 @@
 ## The account you're looking for is unavailable.
-> Visit [@mux-to](https://github.com/mux-to) instead
+> Visit [@D1STIL](https://github.com/D1STIL) instead
